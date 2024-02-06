@@ -42,5 +42,5 @@ Kegiatan Microcredential Game Developer 14 Agu 2023 - 31 Des 2023
 
 Project Capstone 10 Desember 2023
 
-Link Download Game Windows, Android
+Link Download itch.io game Windows, Android
 https://edurevva.itch.io/ridesafelyrevva

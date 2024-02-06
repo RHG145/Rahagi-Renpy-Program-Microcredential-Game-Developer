@@ -39,6 +39,8 @@ GA - Aura - Institut Teknologi dan Bisnis Haji Agus Salim Bukittinggi
 GA - Siddhattha Adhitthana Hartono - Bina Nusantara
 
 Kegiatan Microcredential Game Developer 14 Agu 2023 - 31 Des 2023
+
 Project Capstone 10 Desember 2023
+
 Link Download Game Windows, Android
 https://edurevva.itch.io/ridesafelyrevva

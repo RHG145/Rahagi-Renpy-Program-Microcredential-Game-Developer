@@ -1,4 +1,4 @@
-# Rahagi-Renpy-Program-Microcredential-Game-Developer
+# Project-Capstone-Rahagi-Renpy-Program-Microcredential-Game-Developer
 
 RIDE SAFELY! REVVA! 
 

@@ -13,17 +13,30 @@ Sanggupkah kau mengantarkan Revva dengan selamat ke sekolah??
 Anggota Capstone PMGD Grup H "Revvatainment":
 
 GPM - Siddhattha Adhitthana Hartono - Bina Nusantara
+
 EGD - Raihan Aulia Rahman - Telkom University 
+
 EGD - Teddy Adi Kusuma - Universitas Esa Unggul 
+
 EGD - Eka Putri Widyawati - Universitas Indraprasta PGRI
+
 EGD - Rahagi Kautsar - Universitas Paramadina
+
 EGD - Yulli Aniva Saputri - Institut Teknologi dan Bisnis Haji Agus Salim Bukittinggi
+
 EGD - Siddhattha Adhitthana Hartono - Bina Nusantara
+
 GD - Achmad Abdi Mualimin - Universitas Bina Sarana Informatika (UBSI) 
+
 GD - Clarissa Janice - Universitas Hayam Wuruk Perbanas Surabaya
+
 GD - Siddhattha Adhitthana Hartono - Bina Nusantara
+
 GA - Junior Fabyano Idhamanta - Universitas Trilogi
+
 GA - Aura - Institut Teknologi dan Bisnis Haji Agus Salim Bukittinggi
+
 GA - Siddhattha Adhitthana Hartono - Bina Nusantara
 
+Link Download Game Windows, Android
 https://edurevva.itch.io/ridesafelyrevva
